@@ -3,4 +3,4 @@
 
 Right on! Moon tacos!
 
-undesrstand human?
+understand human?
